@@ -1,5 +1,5 @@
 <div align=center>
 
-  ![dino](https://tenor.com/ru/view/when-the-money-fast-money-gif-18043142)
+  ![money](https://media.tenor.com/b7jgsT3ctlwAAAAC/when-the-money-fast-money.gif)
   
 </div>
